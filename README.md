@@ -1,0 +1,2 @@
+# Ds_pariwisata
+skripsi
